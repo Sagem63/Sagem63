@@ -1,5 +1,5 @@
 Hi, I’m Sagem!
-This place represents everything I have done during my study at the university.
+This place represents almost everything I have done during my study at the university.
 Take a look, if you are interested.
 
 
